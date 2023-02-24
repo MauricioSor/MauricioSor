@@ -1,7 +1,7 @@
-### Hi there, this is my Gituhub Profile👋
+### Hi there!👋 this is my Gituhub Profile 👨‍💻
 ![Negro Blanco y Verde Moderno Tecnología Presentación de Portafolio](https://user-images.githubusercontent.com/106267352/221073818-13079405-37bb-4789-9d01-75a15604170c.gif)
 
-# ¿Do you have a project for me? 🤔
+# ¿Do you have an idea? 🤔
 ## Contact Me! 😁📬
 
 mauricioutn2017@gmail.com
