@@ -1,6 +1,8 @@
-### Hi there 👋
+### Hi there this is my Gituhub Profile👋
 ![Negro Blanco y Verde Moderno Tecnología Presentación de Portafolio](https://user-images.githubusercontent.com/106267352/221073818-13079405-37bb-4789-9d01-75a15604170c.gif)
 
+## ¿Do you have a project for me? 🤔
+## Contact Me 😁📬
 <!--
 **MauricioSor/MauricioSor** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
