@@ -1,4 +1,4 @@
-### Hi there!👋 This is my Gituhub Profile ![download](https://user-images.githubusercontent.com/106267352/221078491-4275b652-b427-453a-951b-15dcc741ec20.png)
+### Hi there!👋 This is my Gituhub Profile
 
 ![15368](https://user-images.githubusercontent.com/106267352/221077862-2809652a-d3d1-48fa-be3f-991560617210.png)
 
