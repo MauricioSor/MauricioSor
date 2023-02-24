@@ -1,8 +1,5 @@
 ### Hi there!👋 This is my Gituhub Profile 👨‍💻 
-
-
-![Negro Blanco y Verde Moderno Tecnología Presentación de Portafolio](https://user-images.githubusercontent.com/106267352/221080090-5d498a1b-74f5-410c-a18a-721e3f264236.gif)
-
+![Negro Blanco y Verde Moderno Tecnología Presentación de Portafolio](https://user-images.githubusercontent.com/106267352/221080387-e19272cc-9284-4c2c-9626-0facb3ccae5a.gif)
 
 # ¿Do you have an idea? 🤔
 ## Contact Me! 😁📬
