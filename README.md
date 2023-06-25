@@ -1,5 +1,6 @@
 ### Hi there!👋 This is my Gituhub Profile 👨‍💻 
-![Negro Blanco y Verde Moderno Tecnología Presentación de Portafolio](https://user-images.githubusercontent.com/106267352/221080387-e19272cc-9284-4c2c-9626-0facb3ccae5a.gif)
+![Negro Blanco y Verde Moderno Tecnología Presentación de Portafolio](https://github.com/MauricioSor/MauricioSor/assets/106267352/9614b929-fe97-4bb5-8668-28326cb1fc6c)
+
 
 # ¿Do you have an idea? 🤔
 ## Contact Me! 😁📬
