@@ -1,6 +1,6 @@
 ### Hi there!👋 This is my Gituhub Profile 👨‍💻 
 
-![1 Negro Blanco y Verde Moderno Tec](https://github.com/MauricioSor/MauricioSor/assets/106267352/1c905cc8-2816-487c-928a-d80c3f397886)
+![1 Negro Blanco y Verde Moderno Tec](https://github.com/MauricioSor/MauricioSor/assets/106267352/b0504630-2a4e-4146-8a6d-fdeadc4577b0)
 
 # Do you have an idea? 🤔
 ## Contact Me! 😁📬
